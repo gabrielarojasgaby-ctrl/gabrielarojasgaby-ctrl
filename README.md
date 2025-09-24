@@ -19,6 +19,14 @@
 
 ---
 
+## 🎵 Mi estilo musical
+- 🎤 Pop para motivarme  
+- 🎶 Electrónica para concentrarme  
+- 🎸 Rock clásico y 80s para inspirarme  
+- 🎼 Música clásica para relajarme  
+
+---
+
 ## 🎨 Mis hobbies  
 
 🍰 **Repostería** – Me encanta preparar pasteles y dulces.  
